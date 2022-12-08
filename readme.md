@@ -1,3 +1,3 @@
 # this all about staring
 
-don't wait to get start
+don't wait to get start!
